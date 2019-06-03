@@ -97,7 +97,10 @@
 【6.30截止】[上海交通大学密西根学院夏令营](umji.sjtu.edu.cn/cn/news/2019-0507-0932/)
 
 ## 中山大学
-【6.10截至】[中山大学2019年“人工智能与科学计算”优秀大学生夏令营活动报名](http://sdcs.sysu.edu.cn/content/4821)
+【6.10截止】[中山大学2019年“人工智能与科学计算”优秀大学生夏令营活动报名](http://sdcs.sysu.edu.cn/content/4821)
+
+## 哈工大
+【6.24截止】[2020年优秀硕士生源选拔（含直博生）暑期夏令营招募通知](http://yzb.hit.edu.cn/2019/0524/c8822a224945/page.htm)
 
 ## 哈工大深圳
 【6.17截止】[哈尔滨工业大学（深圳）2020年暑期夏令营](http://yzb.hitsz.edu.cn/yzs_common/zsxxxq/index?id=bd960a16081f4dbfa0459f641c3c1047&xxlm=04)
